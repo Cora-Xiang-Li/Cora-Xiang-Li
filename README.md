@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Cora-Xiang-Li
-- 👀 I’m interested in Movies🎬 music🎵 travel✈️ ...
+- 👀 I’m interested in Movies🎬 RnB🎵Hiking✈️ ...
 - 🌱 I’m currently learning MIT/MITM
 - 💞️ I’m looking to collaborate on Computer Vision
 - 📫 xiang322@outlook.com
